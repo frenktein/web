@@ -1,2 +1,2 @@
 # ipteach
-storing music and video clips
+study hard thus succession
